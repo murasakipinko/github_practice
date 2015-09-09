@@ -6,3 +6,8 @@ hogehoge
 mogemoge
 hogehoge
 mogemoge
+
+わかよたれそ
+つねならむ
+いろはにほへと
+ちりぬるを
